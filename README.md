@@ -1,2 +1,2 @@
-# DRUGS.github.io
+# IdaShunichi.github.io
 no thanks
